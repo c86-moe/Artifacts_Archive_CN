@@ -1,3 +1,6 @@
+## Disconnected
+This archive has been disconnected from the web version. Contents will no longer be updated here.
+
 # 少女咖啡枪！同人站 资源仓库
 
 本存档最后更新时间：2021年12月03日，基于2021年11月30日更新资源包。
